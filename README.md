@@ -1,2 +1,2 @@
-CS, Chem @ University of Washington
+#CS, Chem @ University of Washington
 big fan of ducks
