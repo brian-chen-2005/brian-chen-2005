@@ -1,3 +1,3 @@
 **CS, Chem @ University of Washington**
 
-*big fan of ducks*
+*big fan of ducks, card games, grand strategy games*
